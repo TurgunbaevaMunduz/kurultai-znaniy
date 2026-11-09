@@ -1,1 +1,0 @@
-# kurultai-znaniy
